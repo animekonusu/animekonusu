@@ -1,0 +1,2 @@
+# animekonusu
+https://animekonusu.com/
